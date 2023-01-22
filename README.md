@@ -1,0 +1,2 @@
+# tyiiaioolsls
+Tidak pernah tertawa
